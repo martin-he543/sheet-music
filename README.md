@@ -24,7 +24,13 @@ As the title suggest, suffering. I came up with the first variational motif in a
 ##### Composed: 2019
 A piece that was composed in under 30 minutes. Once the initial motif appeared in my head, in what can only be described as a interesting take on *Chim Chim Cheree*, the rest briskly followed. This piece takes a stroll exploring the relative major, before returning to the initial theme in a cyclical manner, with a wistful *coda* that embodies this nostalgia. As the fantastic *Raya Kostava* summed it up: *"it's sounds like you have the soul of a 70 year old French man smoking cigarettes on a balcony."*
 
+- Eudaimonia, or εὐδαιμονία, roughly translated meaning: *happiness, wellbeing, state of inner-peace,* was composed on New Year's Day, 2020, during a period of relative happiness after several years of depressive episodes. Little did I know, the chaos that would ensue in this ripe, new decade
+
 ## Arrangements
 - **Rather Be for Four Hands**
 ##### Arrangement: 2017
 Based on the fantastic song by Clean Bandit in 2014 which would not exit my brain for a good 5 years straight comes this arrangement. Originally intended for GCSE Ensemble performance coursework with a friend, Nick, eventually, this arrangement would be used to create versions for the violin (performed with the fantastic *James Hur*), as well as part of a set-list (with my friend Bruno).
+
+- **Chandelier for Four Hands**
+##### Arrangement: 2017
+Based on the song by Sia, also originally intended for my GCSE Ensemble Performance. However, the refusal of Mr. O'Malley led this arrangement to a dead end. To be fair, he was correct as both parts were horribly synchronised and insufficiently difficult.
